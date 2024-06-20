@@ -1,5 +1,3 @@
-# Here is the document in Markdown format:
-
 # DAvid Russell
 
 ---
