@@ -3,7 +3,7 @@
 ## World's Deepest Belly Button Hole Holder
 
 ### Overview
-Miggy has held the distinguished title of having the world's deepest belly button hole since 2016. Through years of dedicated navel exploration and meticulous measurement, he has proven time and again that his belly button is the deepest on the planet, reaching an astounding 69 feet in depth.
+Mongolo has held the distinguished title of having the world's deepest belly button hole since 2016. Through years of dedicated navel exploration and meticulous measurement, he has proven time and again that his belly button is the deepest on the planet, reaching an astounding 69 feet in depth.
 
 ### Key Accomplishments
 - Guinness World Record Holder for Deepest Belly Button Hole (2016-present)
@@ -40,4 +40,4 @@ Miggy's proven training regimen for cultivating an exceptionally deep belly butt
    - Spend at least 30 minutes per day focused on deepening and expanding the belly button
    - Constantly measure depth and track progress using the patented "Navel Depth Gauge 3000"
 
-With consistent effort and dedication to this regimen, Miggy has demonstrated that it is possible to develop an impressively deep and unique belly button, surpassing even the most extraordinary expectations.
+With consistent effort and dedication to this regimen, Mongolo has demonstrated that it is possible to develop an impressively deep and unique belly button, surpassing even the most extraordinary expectations.
