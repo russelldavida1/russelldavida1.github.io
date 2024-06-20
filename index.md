@@ -1,4 +1,4 @@
-# DAvid Russell
+# David Russell
 
 ---
 
